@@ -1,5 +1,5 @@
 - 👋 Hi, aku @dwiwrdn
-- 👀 aku tertarik data scientist
+- 👀 aku tertarik dibidang data
 - 🌱 I’m sedang belajar python
 - 💞️ aku sedang mencari teman belajar bersama 
 - 📫 dwiqsw ig ku hubungi kalau perlu
